@@ -8,4 +8,4 @@ experiência com o Next.
 
 1. Amante da música erudita
 2. Gosto de viajar por aí
-3. Já fiz mergulho com equipamentos
+3. Já fiz mergulho em alto mar com equipamentos
