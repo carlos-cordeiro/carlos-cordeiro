@@ -7,5 +7,5 @@ experiência com o Next.
 ## Curiosidades
 
 1. Amante da música erudita
-2. Gosto de viajar por aí
+2. Gosto de viajar
 3. Já fiz mergulho em alto mar com equipamentos
